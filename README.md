@@ -1,13 +1,6 @@
 # 👋 Hello!
 I’m Deirdre (DEEdruh)
 
-### 👀 I’m interested in
-- writing
-- full time RV living and travel
-- beekeeping
-
-🌱 I’m currently learning a new job at Disney (professional) and how to work with epoxy resin (personal.)
-
 📫 Reach me at dmurrayholmes@gmail.com or (323) 363-6777
 
 <!---
